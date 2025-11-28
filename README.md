@@ -3,7 +3,8 @@
 [点击这里下载视频](https://github.com/isfamily/shengming/blob/main/20230610-060328.6106.mp4)
 
 下载说明：
-![下载]（./截屏2025-11-28 10.06.36.PNG）
+![截屏2025-11-28 10.06.36.png](https://github.com/isfamily/shengming/blob/main/%E6%88%AA%E5%B1%8F2025-11-28%2010.06.36.png)
+
 
 本站是为了帮助孕妈妈不堕胎，留下自己的孩子的。 对应微信公众号“珍爱生命”！
  
