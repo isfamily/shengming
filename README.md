@@ -2,7 +2,7 @@
 
 [点击这里下载视频](https://github.com/isfamily/shengming/blob/main/20230610-060328.6106.mp4)
 
-下载说明：
+点击蓝色链接进入之后，找到下面图片中圈出来的下载按钮，即可以下载MP4文件
 ![截屏2025-11-28 10.06.36.png](https://github.com/isfamily/shengming/blob/main/%E6%88%AA%E5%B1%8F2025-11-28%2010.06.36.png)
 
 
