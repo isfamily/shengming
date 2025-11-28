@@ -7,6 +7,8 @@
 
 
 本站是为了帮助孕妈妈不堕胎，留下自己的孩子的。 对应微信公众号“珍爱生命”！
+
+![](https://github.com/isfamily/shengming/blob/main/qrcode_for_gh_5d2e8acc52d6_258.jpg)
  
 如果你从来都没有了解过什么是堕胎，可以看上面2分钟的视频【堕胎的真相】做最直观的了解。
  
